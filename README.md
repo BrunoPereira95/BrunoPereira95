@@ -7,4 +7,4 @@
 ---
 
 📫 **Contact:**  
-[LinkedIn](www.linkedin.com/in/bruno-pereira-945a3a1ab) • [Email](bfdp.b5@gmail.com) • [WhatsAPP](+351912385060)
+[LinkedIn](www.linkedin.com/in/brunopereira95) • [Email](bfdp.b5@gmail.com) • [WhatsAPP](+351912385060)
